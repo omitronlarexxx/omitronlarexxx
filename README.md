@@ -1,4 +1,4 @@
-	Starting newbie coder on YAML, and a little Java and Python.
+	Starting newbie coder on a little Java with Python.
 	ENG/RUS, DMs are always opened, exept night. 
 	Moscow UTC +3
 	Pronouns: He/Him/MaybeOther
