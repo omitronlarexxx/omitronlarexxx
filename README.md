@@ -7,4 +7,4 @@
 
 
 
-	Иного Пути Нет - Discord: omitronlarexxx Telegram: @omitronlarexxx
+	Иного Пути Нет - Discord: omitronlarexxx
